@@ -1,0 +1,6 @@
+- 👋 oi, eu sou DeJairSogro
+- 👀 gosto de futebol
+- 🏳️‍🌈 odeio LGBT 
+- 😊 Pronomes- Hetero
+- 💀 Futuro soldado da ROTA
+- ☠ Bandido bom é bandido morto 👍
